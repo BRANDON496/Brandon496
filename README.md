@@ -1,4 +1,4 @@
-## Hi there 👋
+## HI I"M BRENDAN
 
 🧠 System development Student At VISTECH(br/)
 ✨Cisco CyberOps Student(br/)
