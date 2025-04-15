@@ -1,6 +1,6 @@
 ## HI I"M BRENDAN
 
-🧠 System development Student At VISTECH<br/>
+🧠 System development <br/>
 ✨Cisco CyberOps Student<br/>
 🌐I do Computer repair to keep myself consist<br/>
 🗨i Post random IT Memes and Computer Jokes on<instagram><https://www.instagram.com/brendan_496?igsh=Y2x6N2F1djY0cDV2>
